@@ -1,1 +1,1 @@
-# smile_up
+# smile UP activity
