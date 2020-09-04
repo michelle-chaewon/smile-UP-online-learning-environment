@@ -7,11 +7,12 @@ Some of my activities were captured upon the approval of app manager.
 English translation (top-left): A number of postings on abandoned animal adoption often feature images of incapacitated dogs and cats turning their backs in fear. However, in the high quality images of abandoned animals posted by the Pohang City Animal Protection Center (Korea), animals are smiling brightly. Because the photos can determine whether the abandoned animal gets adopted or being euthanized, the staff members put a lot of efforts to take as best pictures as they can. 
 Thanks to the efforts of the staff members, the adoption rate has sparked significantly. However, the adoption dissolution rate has also increased due to people who have made their decisions impulsively based on a single photo of an animal. What efforts does the society as a whole need in order to avoid putting these animals into a even deeper misery due to adoption dissolution?
 <br>
+<br>
 English translation (top-right): The following is part of an interview about the songwriting composition of *Through the night*, one of the representative songs of artist IU. 
 <br>
-"Sleep is so precious to me that it is one of my favorite things. One night, I missed this person so much, but I didn't want to wake this person up because his/her sleep is even more precious than mine. I could have just called this person to say "I miss you" or "I love you", but it was too late at night. Rather than waking him up to tell him "I like you" over the phone, I confess: "I will send a firefly by your window to protect you, because I want you to have a good night sleep. I think this is what is called love." A tiny yet warm light that does exist - I think this is the firefly, or love.   
+"Sleep is so precious to me that it is one of my favorite things. One night, I missed this person so much, but I didn't want to wake this person up because his/her sleep is even more precious than mine. I could have just called this person to say "I miss you" or "I love you", but it was too late at night. Rather than waking him up to tell him "I like you" over the phone, I confess: "I will send a firefly by your window to protect you, because I want you to have a good night sleep. I think this is what is called love." A tiny yet warm enough to exist - I think this is the definition of firefly, or love.   
 <br>
-I think the considerate attitude is one important element for all types of love. Like a firefly in the music video of *Through the night*, what is your own metaphor for love? 
+I think considerate attitude is one important element for all types of love. Like a firefly in the music video of *Through the night*, what is your own metaphor for love? 
 <br>
 <p align="center">
   <img src="img/img_combined.png" width="100%">
