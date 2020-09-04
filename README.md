@@ -7,5 +7,5 @@ Some of my activities were captured upon the approval of app manager.
 This is Description
 <br>
 <p align="center">
-  <img src="img/img_combined.PNG" width="100%">
+  <img src="img/img_combined.png" width="100%">
 </p>
