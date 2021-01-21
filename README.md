@@ -1,6 +1,6 @@
 # <a href="https://www.smileup.site/">smile UP</a> activity
 Some of my activities were captured upon the approval of app manager.  
-"tech for domestic violence prevention" (pdf) is also listed in this folder.
+
 <br>
 <p align="center">
   <img src="img/Q3.PNG" width="48%"> <img src="img/Q22.PNG" width="48%">
